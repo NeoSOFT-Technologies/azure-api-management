@@ -1,3 +1,7 @@
+# Create Resource
+
+https://user-images.githubusercontent.com/92291258/201328423-b21a201a-eef8-4f66-b3f7-dfeef453f669.mp4
+
 # Policy
 
 https://user-images.githubusercontent.com/80381121/201318970-c0193343-598d-440f-9de1-e2e7756b58e2.mp4
